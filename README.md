@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Sabrina612
+- 👋 Hi, I’m Sabrina Akter.
 - 👀 I’m interested in ...
 - 🌱 I’m currently doing Bsc in CSE at UIU.
 - 💞️ I’m looking to collaborate on Programer.
