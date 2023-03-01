@@ -5,7 +5,7 @@
 - 📫 How to reach me through gmail-sabrinaakterofficial@gmail.com or sabrinaakter612@gmail.com
 - 🥳️ Follow me on Facebook-www.facebook.com/mstsabrinaakterofficials
 - 😎 Follow me on Instagram-https://www.instagram.com/sabrina.officials_/
-- 😇 Follow me on Instagram-https://www.instagram.com/sabrina.officials_/
+- 😇 Follow me on 
 - 😋 Follow me on Linkedln- 
 
 
